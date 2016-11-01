@@ -1,4 +1,2 @@
 
-lllll
 ooooooooo
-lllllllll
